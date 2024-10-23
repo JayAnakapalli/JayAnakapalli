@@ -7,6 +7,6 @@
 🌱 Always seeking new knowledge and challenges  
 
 
-🔗 &nbsp;**Connect with me**
+
 
 
